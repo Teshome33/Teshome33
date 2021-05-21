@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Teshome33
 - 👀 I’m interested in work with a clear plan and have self motivation
-- 🌱 I’m currently learning software Develope 
+- 🌱 I’m currently learning software Develop
 - 💞️ I’m looking to collaborate on friendly
 - 📫 How to reach me 
                   email-tregassaa@gmail.com 
